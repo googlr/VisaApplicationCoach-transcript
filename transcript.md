@@ -1,3 +1,10 @@
+# Transcript of VisaInterviewCoach
+## Introduction
+Former U.S. Visa officer, Jack, posted informative and helpful videos on Youtube channel [VisaInterviewCoach](https://www.youtube.com/@VisaInterviewCoach/shorts). Below is part of the tips video transcript to help you navigate the videos that are relevant to your case.
+
+More videos of [Visa Interview Master Class](https://visainterviewcoach.com/videos) and videochat consultation/coaching sessions are available on his website [https://visainterviewcoach.com](https://visainterviewcoach.com). Check it out if you find it helpful.
+
+## Transcripts
 Tips # | Link to video
 | --- | ---- |
 Tip #1: Don't take "no" for an answer. Ask if you can offer some new information. Be real and share something positive that did not come up earlier. It might change the Visa officer's mind. | https://www.youtube.com/shorts/OQO_wTlZTLE
