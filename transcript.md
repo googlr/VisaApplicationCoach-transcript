@@ -103,26 +103,27 @@ Tip #90: Take control of your visa interview. Visa offiers do not have a set lis
 
 Tip #91: Common F1 student visa question: what will you do after graduation? | https://www.youtube.com/shorts/eMCR-XgvmRw
 Tip #92: Two new mandatory visa questions - be prepared! One, have you experienced harm or mistreatment in your country of nationality or last habitual residence? Two, do you fear harm or mistreatment in returning to your country of nationality or permanent residence? Now you must answer verbally with a no to both questions for the officer to continue with the visa issuance. If you have to say yes, your visa will be refused. Why the change? From the goverment's perspective, if you fear returning home, you have immigrant intent, meaning you don't qualify for a non-immigrant visa to visit a study there. | https://www.youtube.com/shorts/Ra_RCMynioA
-Tip #93: What to do if your US visa is refused in 2026? First, write it down. Second,  | https://www.youtube.com/shorts/_6CbmSORvDc
-Tip #94: 
-Tip #95: 
-Tip #96: 
-Tip #97: 
-Tip #98: 
-Tip #99: 
-Tip #100: 
+Tip #93: What to do if your US visa is refused in 2026? First, write it down. Second, identify the problem. Third, fix that problem. You will do it both verbally at the next interview, but more importantly, you will do it in writing in your new DS160. | https://www.youtube.com/shorts/_6CbmSORvDc
+Tip #94: New limits on applying for green cards in the US. | https://www.youtube.com/shorts/u8UZsPg-MR0
+Tip #95: Your DS160 visa application can cause your visa application. | https://www.youtube.com/shorts/QH1pdbVM5tI
+Tip #96: Those F1 visa interview answers sound fake in 2026. | https://www.youtube.com/shorts/pUz3-t7B7_M
+Tip #97: 3 things visa officers hate seeing on your tourist visa history (even though they are totally allowed and legal). One, change your status. Two, extend your stay. Three, giving birth in the US. | https://www.youtube.com/shorts/wpkc9HHH4xI
+Tip #98: Visa officers hate when F1 students do thest. One, change schools. Two, start a new program after finishing the original one, especially when it is a second masters. Three, CPT. | https://www.youtube.com/shorts/CU-weARfDQA
+Tip #99: Nervouse about your US visa interview? First, while waiting inline, try the double inhale breathing technique. Take a fast deep breath, then take a second extra sip of air at the top, then slowly exhale out all your breath. No one can tell you are doing this. And it's proven to reduce your anxiety. Second, consider a coaching sesstion with a former Visa Officer. Third, visa officers are used to nervous applicants. The way to show them you're the normal kind of nervous is to share information about yourself with answers that are about five seconds long. People who are nervouse because they are hiding something don't do that. They give short answers with little information because they are afraid of giving somthing away. | https://www.youtube.com/shorts/knZSrUryrbQ
+Tip #100: Visa officers hate reading. Make sure any documents you bring are written in a way that is easy for them to digest. They will not take the time to read a three-page document. They won't even read a one page document. Anything you want the officer to read should be short and clear. No extra words. Just punchy ideas, and it should not be half a page long. So to help them skim and digest the information quickly, you should use bullet points, headers, and bold the key concepts. It's even better if you can take the most important information in the document and put it inside the DS160 visa application, because they have to read that. So what written documents are they most likely to ask for? Invitation letters, itineraries, job letters and bank statements. | https://www.youtube.com/shorts/Fjs1F2q4Lac
 
 
-Tip #11: 
-Tip #12: 
-Tip #13: 
-Tip #14: 
-Tip #15: 
-Tip #16: 
-Tip #17: 
-Tip #18: 
-Tip #19: 
-Tip #10: 
+Tip #101: What to do if your visa officer is new? | https://www.youtube.com/shorts/9Q9_VJL4TTY
+Tip #102: New rule for F1 students and J1 exchange visitor. D/S for the program length. | https://www.youtube.com/shorts/CjO6mVjTEIk
+Tip #103: Visa update: Trump administration is pausing immigrant visa appointment. | https://www.youtube.com/shorts/qk-DxuwFmg0
+Tip #104: Humor during your visa interview can build instant trust. | https://www.youtube.com/shorts/mVYUBZJY9lg
+Tip #105: Medical conditions and the US visa interview. | https://www.youtube.com/shorts/8NoUEomOTk8
+Tip #106: Giving birth in the US can result in visa denial. | https://www.youtube.com/shorts/aTkRnAoN4Yw
+Tip #107: Choose your US university carefully - your F1 visa application depends on it. | https://www.youtube.com/shorts/TdVPPtIdcFM
+Tip #108: Green card sponsorship suspended for eight US companies - including Microsoft. | https://www.youtube.com/shorts/xwQJNceaP3k
+Tip #109: US visa power tip - Money talks. | https://www.youtube.com/shorts/pMncYJJReOg
+Tip #110: Secret app used by US visa officers to evaluate public charge for immigrant visas. | https://www.youtube.com/shorts/xF-eG866HB8
+Tip #111: Don't tell the visa officer that you will return to your home country. Show, don't tell. | https://www.youtube.com/shorts/50BYlASuFIk
 
 
 
