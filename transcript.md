@@ -1,5 +1,5 @@
-
-
+｜ Tips # | Link to video |
+| --- | ---- |
 Tip #1: Don't take "no" for an answer. Ask if you can offer some new information. Be real and share something positive that did not come up earlier. It might change the Visa officer's mind. | https://www.youtube.com/shorts/OQO_wTlZTLE
 Tip #2: Don't let a Visa Officer's bad mood affect your US visa interview. First, schedule your interview early in the morning. Second, give them plenty of information they need to make a decision, both verbally and in writing on your DS160. Because the default answer is no. Third, don't annoy the visa officer by trying to hand them documents, or asking them to repeat their questions over and over. | https://www.youtube.com/shorts/qU18OMpMpFY
 Tip #3: Visa officers don't look at documents. They are trained not to. Your verbal answer is key. Answer the question first and let the VO know that you have the documents. Never try to pass a document to the officer unless they ask for it. They find it really annoying. | https://www.youtube.com/shorts/UQe31ex1_Jo
@@ -8,23 +8,21 @@ Tip #5: The US visa officer is judging everything about you during the visa inte
 Tip #6: Be authentic. Don't prepare answers that you think a visa officer wants to hear. Say things true to you. Keep your tones natural like you're chatting with someone new at a party. Be open, conversational and real. When you say something that is genuinely unique to your situation, that's when an officer knows it's true for you. | https://www.youtube.com/shorts/XXgmErpFEP4
 Tip #7: Got denied a US visa? Your chances might actually be higher on your second try. First, the visa application form now asks about your refusal, this is your chance to explain the situation and give new positive information in writing. Visa officers absorb way more information when it's in writing. Second, you now have clues about what the main issue was from your first interview. Use that knowledge to fix it on round two. Third, reapplying could show that you are serious about your trip, and you're guaranteed a different visa officer on your second try. Just stay calm and confident and don't seem desperate. | https://www.youtube.com/shorts/qagtFc9ge0I
 Tip #8: Make sure you save a copy of your visa application before you submit it. You have to know everything that is written on your application. If your answers during the interview don't match what's on the application, the officer will think you are lying and that's usually an automatic denial. If already submitted, try to start a new application and it often repopulates with the old data so you can at least have an idea of what you might have written. | https://www.youtube.com/shorts/ruE-EZyB0wM
-Tip #9: Want a US visa, money talks! Having money shows you can afford international travel and it means you won't look for a job in the US. First, identify your financial strengths, like a job title, salary, savings, or property assets, highlight your strongest point. Second, be specific with numbers. If you are not wealthy, you can still qualify by demostrating a strong purpose of travel and solid ties to your home country. | https://www.youtube.com/shorts/4GUZrfi8l5E
+Tip #9: Want a US visa, money talks! Having money shows you can afford international travel and it means you won't look for a job in the US. First, identify your financial strengths, like a job title, salary, savings, or property assets, highlight your strongest point. Second, be specific with numbers. If you are not wealthy, you can still qualify by demonstrating a strong purpose of travel and solid ties to your home country. | https://www.youtube.com/shorts/4GUZrfi8l5E
 Tip #10: Apply for a student visa? You don't have to worry about ties to your home country. Focus on why you chose that school and program, and what you want to do after graduation. | https://www.youtube.com/shorts/Jun5TFc49_s
-
 Tip #11: Were you refused a US visa? You don't have to change anything for your next application. Changing big things on your application like your university or your financial sponsor can actually hurt your chances. The key is to provide new information that the first visa officer didn't know. That's how a second officer is gonna be able to justify a different decision. Make sure you highlight this new information in your DS160 form and mention it during your second interview. | https://www.youtube.com/shorts/Ut-ulgwxaQc
-Tip #12: Don't memorize the answers for the interview. First, if your answers are memorized, they can't tell if you're lying or not. Second, the officer is going to ask a question you did't prepare for. If you freeze or try to give a memorized answer that doesn't fit that question, it looks really bad. It's okay to memorize key points, but never memorize long sentences or paragraphs. Officers can spot it instantly. | https://www.youtube.com/shorts/F7R2X2vCZ7w
+Tip #12: Don't memorize the answers for the interview. First, if your answers are memorized, they can't tell if you're lying or not. Second, the officer is going to ask a question you didn't prepare for. If you freeze or try to give a memorized answer that doesn't fit that question, it looks really bad. It's okay to memorize key points, but never memorize long sentences or paragraphs. Officers can spot it instantly. | https://www.youtube.com/shorts/F7R2X2vCZ7w
 Tip #13: Applying for a student visa? Don't let a visa agent pick your university. | https://www.youtube.com/shorts/4sT6HBlxQDc
 Tip #14: Don't bring a binder to your visa interview. It wastes time if you need to take something out. Instead, bring a pile of loose papers with tabs. Second, you can put your most important document on top. Even if they don't ask for it, they will see if through the glass. | https://www.youtube.com/shorts/Hv3CAZqjCHo
 Tip #15: Never use the words "ties" or "home country". Nobody use those words in real life. Just talk about your life, emphasizing the reasons you can't stay forever in the US. For example, if an officer asks how long your tourism trip is gonna be, you can say "oh, I am just going for Christmas break, I still have two semesters of school left". Always be natural, conversational and real. | https://www.youtube.com/shorts/GYFU2b1kE-s
 Tip #16: Sometimes you should ignore the instructions on the visa application. | https://www.youtube.com/shorts/8vYdurVkSok
 Tip #17: Someone with US relatives. One, did they immigrate legally? Two, do they own a business that you might want to assist with? Three, is it an immediate family member that you might intent to live with? When talking about US relatives, give details. Be clear about how your relatives immigrated, what their jobs are, and your exact relationship with them. | https://www.youtube.com/shorts/elAtXkCiRlM
-Tip #18: Don't travel alone. First, in many cultures, traveling alone for tourism is uncommon. Second, travelling with someone who already has a US visa strengthens your case. | https://www.youtube.com/shorts/W5T2pmeqnWo
+Tip #18: Don't travel alone. First, in many cultures, traveling alone for tourism is uncommon. Second, traveling with someone who already has a US visa strengthens your case. | https://www.youtube.com/shorts/W5T2pmeqnWo
 Tip #19: Know your sponsor's finances | https://www.youtube.com/shorts/bkZDoHsXW_M
 Tip #20: F1 student visa: Negotiate your I-20 foam. Add bank statement amount, scholarship and realistic start date. | https://www.youtube.com/shorts/Kb_QaUTuFiM
-
 Tip #21: Don't use AI tools to prepare for your visa interview. Much of the information one the internet is just plain wrong or lack contexts. | https://www.youtube.com/shorts/tVpaciQqTLQ
-Tip #22: Tips for documents. Visa officers rarely ask for them, but you should still bring them. If you have an invitation letter, keep it short - just one paragraph. Visa officers don't have time for lengthy documents. Consider adding photos of the person inviting you at the bottom so that the officer can see who they are. Second, bank statements can be difficult to read. Use a highligher to draw attention to key information: your name, the date, the total balance. Third, if you wanna hand over a document, clearly state what it is. This helps the officer follows along. Fourth, if you have photos, make sure to label them. This adds context and helps the officer know what they're looking at. | https://www.youtube.com/shorts/0T_J-zyy48U
-Tip #23: Don't talke like a lawyer. First, drop the formalities like "sir/ma-dam". Second, officers want to finish that interview in two minutes. Instead, focus on information filled, five-second verbal answers. Your key info should already be summarized in writing in your DS160. Third, don't talk like a lawyer. It's a chat about your life. Be open, casual and conversational. | https://www.youtube.com/shorts/vq-5UZT_WyU
+Tip #22: Tips for documents. Visa officers rarely ask for them, but you should still bring them. If you have an invitation letter, keep it short - just one paragraph. Visa officers don't have time for lengthy documents. Consider adding photos of the person inviting you at the bottom so that the officer can see who they are. Second, bank statements can be difficult to read. Use a highlighter to draw attention to key information: your name, the date, the total balance. Third, if you wanna hand over a document, clearly state what it is. This helps the officer follows along. Fourth, if you have photos, make sure to label them. This adds context and helps the officer know what they're looking at. | https://www.youtube.com/shorts/0T_J-zyy48U
+Tip #23: Don't talk like a lawyer. First, drop the formalities like "sir/ma-dam". Second, officers want to finish that interview in two minutes. Instead, focus on information filled, five-second verbal answers. Your key info should already be summarized in writing in your DS160. Third, don't talk like a lawyer. It's a chat about your life. Be open, casual and conversational. | https://www.youtube.com/shorts/vq-5UZT_WyU
 Tip #24: Watch out for scams. | https://www.youtube.com/shorts/sS8uu8bYydo
 Tip #25: Redirect the officer's attention. The key is to stay focused on your strengths during the interview. | https://www.youtube.com/shorts/Fn-kp7q12RE
 Tip #26: Don't stay six months. Consider a shorter stay. | https://www.youtube.com/shorts/zw4xatJh7No
@@ -32,23 +30,20 @@ Tip #27: Why do visa officers seem rude? One: they're not gonna greet you becaus
 Tip #28: Internet answers will get you refused. | https://www.youtube.com/shorts/NYrvC36OZhw
 Tip #29: Find out the questions BEFORE your visa interview. As you're passing through the line, you can often hear the questions that the visa officers are asking the people in front of you. Visa officers tend to use the same questions over and over again, so you should be able to get an idea of what questions they might ask you when it's your turn. | https://www.youtube.com/shorts/_EQEfAeS7XM
 Tip #30: You're guilty until proven innocent. If you don't provide the information they need to be satisfied that your trip is temporary, you will be refused by default. Provide information. Give detailed answers on your DS-160 and your interview answers that help the officer see that your visit is genuinely temporary. This could be about your intended purpose of travel, your plans for the future, or your ties to your home country. | https://www.youtube.com/shorts/0R7wFWiSaNY
-
-
 Tip #31: What the visa officer doing during the interview? First up, when you hand your passport to the officer, they scan the barcode to pull up your DS-160 visa application. This is the first time anyone is reviewing your case. The decision is NOT made ahead of time. As they skim through your DS-160, they are focusing on a few key areas: the length of your stay, your relatives in the US, your job and salary, your previous international travel. They also see if you've been refused before, and read the case notes about that case. Because they're reading, they won't spend a lot of time looking at you, but they WILL glance at you. They're assessing your body language and facial expressions. Are you nervous? Are you sweating? Next they'll ask you a few key questions to verify your information and look for weak points. Then they will tell you their decision. There is no quota. Each case is evaluated on its own merits. All this happens in just two to three minutes, so being prepared is crucial. | https://www.youtube.com/shorts/iTTkDnmHzmQ
 Tip #32: Get a faster US visa appointment. | https://www.youtube.com/shorts/seOyguTpWGY
 AMA session. | https://www.youtube.com/shorts/nYwKa1pdSoI
 Tip #33: Does an I-20 from a community college make it less likely to be approved for an F1? | https://www.youtube.com/shorts/eQ6J5nUn-kg
-Tip #34: If you should change your universtiy if you're refused the first time. | https://www.youtube.com/shorts/SlBTmOcSQ3c
+Tip #34: If you should change your university if you're refused the first time. | https://www.youtube.com/shorts/SlBTmOcSQ3c
 Tip #35: How long should you wait to reapply after a refusal? Even though they say that you should wait until there's been some change in your life situation, the truth is that it happens all the time that two different visa officers will see the same visa case and come to a different decisions. This means that often times you can reapply immediately after being refused and a different visa officer is gonna see it differently. Of course it helps if you have some new positive information that you can share with the second visa officer that the first visa officer didn't know. And if you have a very weak case, you probably shouldn't try again because you're probably gonna get the same answer. But if your case is borderline, I say try again! | https://www.youtube.com/shorts/0lNYRZwLd4M
 Tip #36: Why officers are so rude sometimes? Visa officers have to be suspicious. Visa officers aren't overly friendly because they don't want to get your hopes up. | https://www.youtube.com/shorts/K5Dyy6LMprE
 Tip #37: Educate your visa officer. They are not experts in your field. First, keep it simple. Avoid jargon or overly complicated terms. And second, politely correct them if needed. | https://www.youtube.com/shorts/nsLZmlZX3KM
 Tip #38: Does application to watch the World Cup have advantage? | https://www.youtube.com/shorts/NGnV8hisLaw
 Tip #39: What to wear to your US visa interview? For tourist visa, wear what you might wear if you're going to a nice cafe with your friends. For business visa, dress like what you might dress if you're having external clients in for a meeting at your office. For man, this could be a polo shirt, a dress shirt, a nice sweater. For women, it could be like dress slacks and a blouse. Don't go too formal or too causal. | https://www.youtube.com/shorts/H0FLsGZ58ZM
 Tip #40: "Why this university?" Be authentic. | https://www.youtube.com/shorts/N-arLwW3k24
-
-Tip #41: What is the visa officer reading? DS-160: Salary and job (worth coming back to); US family (how they immigrated and if you intend to live with them permanantly); Length of stay (not too long); Previous international travel (not US for the first time); Matrital status. | https://www.youtube.com/shorts/qEuerXF1bgY
+Tip #41: What is the visa officer reading? DS-160: Salary and job (worth coming back to); US family (how they immigrated and if you intend to live with them permanently); Length of stay (not too long); Previous international travel (not US for the first time); Marital status. | https://www.youtube.com/shorts/qEuerXF1bgY
 Tip #42: The most commonly FORGOTTEN document at the US visa interview? Photo copies of your family member's visas. | https://www.youtube.com/shorts/nuP0maLwlGE
-Tip #43: Is it harder to get approved if you are yough? | https://www.youtube.com/shorts/pD870D4VQhY
+Tip #43: Is it harder to get approved if you are young? | https://www.youtube.com/shorts/pD870D4VQhY
 Tip #44: Top 3 reasons student visas are denied. | https://www.youtube.com/shorts/AjN4JXO0Dek
 Tip #45: Visa officers' sneaky tricks #1. "Are you sure about that?" | https://www.youtube.com/shorts/Ho-KZzCGS4A
 Tip #46: Visa officers' sneaky tricks #2. Ask reason of previous refusal. | https://www.youtube.com/shorts/uByj3vq4Jyg
@@ -56,7 +51,6 @@ Tip #47: Visa officers' sneaky tricks #3. Barcode scanner. | https://www.youtube
 Tip #48: Visa officers' sneaky tricks #4. Ask to see a document for proof. | https://www.youtube.com/shorts/nrEkUed7Va0
 Tip #49: Visa officers' sneaky tricks #5. Closing the path of escape. | https://www.youtube.com/shorts/w5NsYL64Uho
 Tip #50: The most dangerous US visa interview question: what's changed since your last application? Answer: Last time I did not get to explain that ..., then finishing the answer by giving some new positive information about yourself. | https://www.youtube.com/shorts/D_ChIdYd2S8
-
 Tip #51: Five student visa testing questions. | https://www.youtube.com/shorts/_EUvy8RtoUs
 Tip #52: Find out why your US visa was refused. Write down all the questions you were asked and all the answers you gave as soon as you leave the embassy. Try to get the words as exact as possible. | https://www.youtube.com/shorts/XYzSumnpGUg
 Tip #53: Mock visa interview. | https://www.youtube.com/shorts/8_Hxl_-zyzw
@@ -67,7 +61,6 @@ Tip #57: Top 3 reasons for tourist visa denial. One, your purpose of travel does
 Tip #58: Don't apply your visa in other countries. | https://www.youtube.com/shorts/WoSSsLrCTNI
 Tip #59: Illegal work on a tourist visa. | https://www.youtube.com/shorts/9ppGPB4F8og
 Tip #60: When should you reapply after visa refusal? | https://www.youtube.com/shorts/3xIRbOTS7wM
-
 Tip #61: Five US work visas to avoid the H1b's $100k fee. | https://www.youtube.com/shorts/5X7XfmqoJm4
 Tip #62: Interview English or local language? | https://www.youtube.com/shorts/B97CQJGCknM
 Tip #63: Booking plane tickets and hotel before the US visa interview? | https://www.youtube.com/shorts/e75AYVOQd5k
@@ -76,43 +69,38 @@ Tip #65: Visa officer do this calculation (2/2) in student visa interviews| http
 Tip #66: Is a diversity visa lottery entry a problem for tourist visa? | https://www.youtube.com/shorts/W6r1E2EBiyk
 Tip #67: Visa officers attack without evidence. If they are wrong, correct them. | https://www.youtube.com/shorts/isQsRRFidjQ
 Tip #68: Share your interesting reason to travel. Specific details prove your plan. | https://www.youtube.com/shorts/P5ae8fCS5BQ
-Tip #69: Don't sound desperate at your US visa interview. Project stability. Keep your tone calm and factural. | https://www.youtube.com/shorts/beVCvJ5ISno
-Tip #70: Wroking remotely for US company is a massive red flag for tourist visa interview. | https://www.youtube.com/shorts/U9hY8gXPkXg
-
+Tip #69: Don't sound desperate at your US visa interview. Project stability. Keep your tone calm and factual. | https://www.youtube.com/shorts/beVCvJ5ISno
+Tip #70: Working remotely for US company is a massive red flag for tourist visa interview. | https://www.youtube.com/shorts/U9hY8gXPkXg
 Tip #71: Show your patterns. "We have been to Disneyland Paris and would like to visit Disneyland Orlando" | https://www.youtube.com/shorts/ASGxFOIFvSM
 Tip #72: Most powerful US visa types. For H1b and L1, the officers can not use 214b. | https://www.youtube.com/shorts/kPCUruwuh9I
 Tip #73: K1 Fiance visas - 5 red flags. | https://www.youtube.com/shorts/jxAYfVPcFmE
 Tip #74: All about passports.  | https://www.youtube.com/shorts/0ko5evNjgIk
 Tip #75: Trump pauses immigrant visa processing for 75 countries. | https://www.youtube.com/shorts/2V0bweD9wRA
-Tip #76: Fast visa appointments for World Cup Tickest. | https://www.youtube.com/shorts/XW_-usrlf04
+Tip #76: Fast visa appointments for World Cup Tickets. | https://www.youtube.com/shorts/XW_-usrlf04
 Tip #77: J1 Exchange visas. | https://www.youtube.com/shorts/Dm1pF2uaVnY
 Tip #78: Change the visa officer's mind. Can I say one more thing? Don't just walk away. Show them you are human and honest. | https://www.youtube.com/shorts/HqQ8q2963b8
 Tip #79: Don't annoy your visa officers. 1. Avoid long introductions. Just start the conversation with simple good morning. 2. Don't pass documents that the officer does not ask for. They almost never want to see them. Instead, answer questions with a powerful specific verbal answer. 3. Officers hate having to repeat their questions. Only ask them to repeat if you have no idea what they said. Instead, listen to the most common questions while you wait in line. Or try to switch to English if you can speak it. | https://www.youtube.com/shorts/ZzggnSrCpvI
-Tip #80: The long walk to the window. Visa officers watch you very carefully when you walk up to the window for your interview. Because there is nothing to read on the computer screen yet. They are notiching everything. Do you seem confortable in your clothing? Are you carring too many documents? Not enough documents. Are you sweating way too much? Does your haircut look expensive? Do you kids seem nervous? Do you have braces or expensive school uniforms? On and on. Remember that your interview begins the second officer sees you in the waiting room. | https://www.youtube.com/shorts/IK7ZaFy11Xw
-
+Tip #80: The long walk to the window. Visa officers watch you very carefully when you walk up to the window for your interview. Because there is nothing to read on the computer screen yet. They are noticing everything. Do you seem comfortable in your clothing? Are you carrying too many documents? Not enough documents? Are you sweating way too much? Does your haircut look expensive? Do you kids seem nervous? Do you have braces or expensive school uniforms? On and on. Remember that your interview begins the second officer sees you in the waiting room. | https://www.youtube.com/shorts/IK7ZaFy11Xw
 Tip #81: Do you know your DS160? 60% of the US visa interview is the officer matching what you say to what is written on the DS160. You would be amazed by how many people have no idea what is one their written application. | https://www.youtube.com/shorts/5MTJlpD0y08
 Tip #82: Use specific numbers at your US visa interviews. Because numbers are objective. I own three properties. I've been in my job for 17 years. I've been to 11 countries. When you use an impressive number, the visa officer immediately has the objective information that they need, rather than having to guess how rich, how successful, how well traveled or how smart you are. | https://www.youtube.com/shorts/HkI4TzSJ01Y
 Tip #83: Memorizing answers doesn't work. | https://www.youtube.com/shorts/LJzwlUy_zNA
-Tip #84: 5 quesitons to ask before hiring a former US visa officer. | https://www.youtube.com/shorts/vOJDG53_qhk
+Tip #84: 5 questions to ask before hiring a former US visa officer. | https://www.youtube.com/shorts/vOJDG53_qhk
 Tip #85: Big change for US visa refusal rates. | https://www.youtube.com/shorts/2M8gEDywLPA
 Tip #86: Visa officers watch your eyes movement and decide whether your visa is approved or denied. | https://www.youtube.com/shorts/hfSSD_LEdIQ
 Tip #87: F1 students focus on the WRONG thing at the visa interview. Being able to give a believable explanation about your plan after graduation. | https://www.youtube.com/shorts/VoMOfaJnrqE 
 Tip #88: Avoid ask a visa officer to repeat the question. First, clarify by paraphrasing. This leads the officer to confirm or correct your interpretation using different words increasing your chances of understanding. Second, ask them to rephrase the question. | https://www.youtube.com/shorts/65as5kThDqk
 Tip #89: Visas for USMLE step 3 | https://www.youtube.com/shorts/Pja07XvZqJ8
-Tip #90: Take control of your visa interview. Visa offiers do not have a set list of questions. Each of their questions is influenced by your answer to the last question. | https://www.youtube.com/shorts/5BbJiydWx0c
-
+Tip #90: Take control of your visa interview. Visa officers do not have a set list of questions. Each of their questions is influenced by your answer to the last question. | https://www.youtube.com/shorts/5BbJiydWx0c
 Tip #91: Common F1 student visa question: what will you do after graduation? | https://www.youtube.com/shorts/eMCR-XgvmRw
-Tip #92: Two new mandatory visa questions - be prepared! One, have you experienced harm or mistreatment in your country of nationality or last habitual residence? Two, do you fear harm or mistreatment in returning to your country of nationality or permanent residence? Now you must answer verbally with a no to both questions for the officer to continue with the visa issuance. If you have to say yes, your visa will be refused. Why the change? From the goverment's perspective, if you fear returning home, you have immigrant intent, meaning you don't qualify for a non-immigrant visa to visit a study there. | https://www.youtube.com/shorts/Ra_RCMynioA
+Tip #92: Two new mandatory visa questions - be prepared! One, have you experienced harm or mistreatment in your country of nationality or last habitual residence? Two, do you fear harm or mistreatment in returning to your country of nationality or permanent residence? Now you must answer verbally with a no to both questions for the officer to continue with the visa issuance. If you have to say yes, your visa will be refused. Why the change? From the government's perspective, if you fear returning home, you have immigrant intent, meaning you don't qualify for a non-immigrant visa to visit a study there. | https://www.youtube.com/shorts/Ra_RCMynioA
 Tip #93: What to do if your US visa is refused in 2026? First, write it down. Second, identify the problem. Third, fix that problem. You will do it both verbally at the next interview, but more importantly, you will do it in writing in your new DS160. | https://www.youtube.com/shorts/_6CbmSORvDc
 Tip #94: New limits on applying for green cards in the US. | https://www.youtube.com/shorts/u8UZsPg-MR0
 Tip #95: Your DS160 visa application can cause your visa application. | https://www.youtube.com/shorts/QH1pdbVM5tI
 Tip #96: Those F1 visa interview answers sound fake in 2026. | https://www.youtube.com/shorts/pUz3-t7B7_M
 Tip #97: 3 things visa officers hate seeing on your tourist visa history (even though they are totally allowed and legal). One, change your status. Two, extend your stay. Three, giving birth in the US. | https://www.youtube.com/shorts/wpkc9HHH4xI
-Tip #98: Visa officers hate when F1 students do thest. One, change schools. Two, start a new program after finishing the original one, especially when it is a second masters. Three, CPT. | https://www.youtube.com/shorts/CU-weARfDQA
-Tip #99: Nervouse about your US visa interview? First, while waiting inline, try the double inhale breathing technique. Take a fast deep breath, then take a second extra sip of air at the top, then slowly exhale out all your breath. No one can tell you are doing this. And it's proven to reduce your anxiety. Second, consider a coaching sesstion with a former Visa Officer. Third, visa officers are used to nervous applicants. The way to show them you're the normal kind of nervous is to share information about yourself with answers that are about five seconds long. People who are nervouse because they are hiding something don't do that. They give short answers with little information because they are afraid of giving somthing away. | https://www.youtube.com/shorts/knZSrUryrbQ
+Tip #98: Visa officers hate when F1 students do these. One, change schools. Two, start a new program after finishing the original one, especially when it is a second masters. Three, CPT. | https://www.youtube.com/shorts/CU-weARfDQA
+Tip #99: Nervous about your US visa interview? First, while waiting inline, try the double inhale breathing technique. Take a fast deep breath, then take a second extra sip of air at the top, then slowly exhale out all your breath. No one can tell you are doing this. And it's proven to reduce your anxiety. Second, consider a coaching session with a former Visa Officer. Third, visa officers are used to nervous applicants. The way to show them you're the normal kind of nervous is to share information about yourself with answers that are about five seconds long. People who are nervous because they are hiding something don't do that. They give short answers with little information because they are afraid of giving something away. | https://www.youtube.com/shorts/knZSrUryrbQ
 Tip #100: Visa officers hate reading. Make sure any documents you bring are written in a way that is easy for them to digest. They will not take the time to read a three-page document. They won't even read a one page document. Anything you want the officer to read should be short and clear. No extra words. Just punchy ideas, and it should not be half a page long. So to help them skim and digest the information quickly, you should use bullet points, headers, and bold the key concepts. It's even better if you can take the most important information in the document and put it inside the DS160 visa application, because they have to read that. So what written documents are they most likely to ask for? Invitation letters, itineraries, job letters and bank statements. | https://www.youtube.com/shorts/Fjs1F2q4Lac
-
-
 Tip #101: What to do if your visa officer is new? | https://www.youtube.com/shorts/9Q9_VJL4TTY
 Tip #102: New rule for F1 students and J1 exchange visitor. D/S for the program length. | https://www.youtube.com/shorts/CjO6mVjTEIk
 Tip #103: Visa update: Trump administration is pausing immigrant visa appointment. | https://www.youtube.com/shorts/qk-DxuwFmg0
@@ -124,55 +112,3 @@ Tip #108: Green card sponsorship suspended for eight US companies - including Mi
 Tip #109: US visa power tip - Money talks. | https://www.youtube.com/shorts/pMncYJJReOg
 Tip #110: Secret app used by US visa officers to evaluate public charge for immigrant visas. | https://www.youtube.com/shorts/xF-eG866HB8
 Tip #111: Don't tell the visa officer that you will return to your home country. Show, don't tell. | https://www.youtube.com/shorts/50BYlASuFIk
-
-
-
-Tip #11: 
-Tip #12: 
-Tip #13: 
-Tip #14: 
-Tip #15: 
-Tip #16: 
-Tip #17: 
-Tip #18: 
-Tip #19: 
-Tip #10: 
-
-
-
-Tip #11: 
-Tip #12: 
-Tip #13: 
-Tip #14: 
-Tip #15: 
-Tip #16: 
-Tip #17: 
-Tip #18: 
-Tip #19: 
-Tip #10: 
-
-
-
-Tip #11: 
-Tip #12: 
-Tip #13: 
-Tip #14: 
-Tip #15: 
-Tip #16: 
-Tip #17: 
-Tip #18: 
-Tip #19: 
-Tip #10: 
-
-
-
-Tip #11: 
-Tip #12: 
-Tip #13: 
-Tip #14: 
-Tip #15: 
-Tip #16: 
-Tip #17: 
-Tip #18: 
-Tip #19: 
-Tip #10: 
