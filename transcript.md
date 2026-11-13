@@ -1,3 +1,5 @@
+
+
 Tip #1: Don't take "no" for an answer. Ask if you can offer some new information. Be real and share something positive that did not come up earlier. It might change the Visa officer's mind. | https://www.youtube.com/shorts/OQO_wTlZTLE
 Tip #2: Don't let a Visa Officer's bad mood affect your US visa interview. First, schedule your interview early in the morning. Second, give them plenty of information they need to make a decision, both verbally and in writing on your DS160. Because the default answer is no. Third, don't annoy the visa officer by trying to hand them documents, or asking them to repeat their questions over and over. | https://www.youtube.com/shorts/qU18OMpMpFY
 Tip #3: Visa officers don't look at documents. They are trained not to. Your verbal answer is key. Answer the question first and let the VO know that you have the documents. Never try to pass a document to the officer unless they ask for it. They find it really annoying. | https://www.youtube.com/shorts/UQe31ex1_Jo
@@ -90,18 +92,18 @@ Tip #80: The long walk to the window. Visa officers watch you very carefully whe
 
 Tip #81: Do you know your DS160? 60% of the US visa interview is the officer matching what you say to what is written on the DS160. You would be amazed by how many people have no idea what is one their written application. | https://www.youtube.com/shorts/5MTJlpD0y08
 Tip #82: Use specific numbers at your US visa interviews. Because numbers are objective. I own three properties. I've been in my job for 17 years. I've been to 11 countries. When you use an impressive number, the visa officer immediately has the objective information that they need, rather than having to guess how rich, how successful, how well traveled or how smart you are. | https://www.youtube.com/shorts/HkI4TzSJ01Y
-Tip #83: 
-Tip #84: 
-Tip #85: 
-Tip #86: 
-Tip #87: 
-Tip #88: 
-Tip #89: 
-Tip #90: 
+Tip #83: Memorizing answers doesn't work. | https://www.youtube.com/shorts/LJzwlUy_zNA
+Tip #84: 5 quesitons to ask before hiring a former US visa officer. | https://www.youtube.com/shorts/vOJDG53_qhk
+Tip #85: Big change for US visa refusal rates. | https://www.youtube.com/shorts/2M8gEDywLPA
+Tip #86: Visa officers watch your eyes movement and decide whether your visa is approved or denied. | https://www.youtube.com/shorts/hfSSD_LEdIQ
+Tip #87: F1 students focus on the WRONG thing at the visa interview. Being able to give a believable explanation about your plan after graduation. | https://www.youtube.com/shorts/VoMOfaJnrqE 
+Tip #88: Avoid ask a visa officer to repeat the question. First, clarify by paraphrasing. This leads the officer to confirm or correct your interpretation using different words increasing your chances of understanding. Second, ask them to rephrase the question. | https://www.youtube.com/shorts/65as5kThDqk
+Tip #89: Visas for USMLE step 3 | https://www.youtube.com/shorts/Pja07XvZqJ8
+Tip #90: Take control of your visa interview. Visa offiers do not have a set list of questions. Each of their questions is influenced by your answer to the last question. | https://www.youtube.com/shorts/5BbJiydWx0c
 
-Tip #91: 
-Tip #92: 
-Tip #93: 
+Tip #91: Common F1 student visa question: what will you do after graduation? | https://www.youtube.com/shorts/eMCR-XgvmRw
+Tip #92: Two new mandatory visa questions - be prepared! One, have you experienced harm or mistreatment in your country of nationality or last habitual residence? Two, do you fear harm or mistreatment in returning to your country of nationality or permanent residence? Now you must answer verbally with a no to both questions for the officer to continue with the visa issuance. If you have to say yes, your visa will be refused. Why the change? From the goverment's perspective, if you fear returning home, you have immigrant intent, meaning you don't qualify for a non-immigrant visa to visit a study there. | https://www.youtube.com/shorts/Ra_RCMynioA
+Tip #93: What to do if your US visa is refused in 2026? First, write it down. Second,  | https://www.youtube.com/shorts/_6CbmSORvDc
 Tip #94: 
 Tip #95: 
 Tip #96: 
